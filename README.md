@@ -8,6 +8,6 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/saywallahibrosaywallahi) • [atabook](https://apolurez.atabook.org) • [prns.cc](https://pronouns.cc/averythemayoooo)
+[rentry](https://rentry.co/saywallahibrosaywallahi) • [atabook](https://apolurez.atabook.org) • [prns.cc](https://pronouns.cc/therealsquIddo)
 
 </div>
